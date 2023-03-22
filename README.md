@@ -1,1 +1,1 @@
-# burad.github.io
+# buradik.github.io
